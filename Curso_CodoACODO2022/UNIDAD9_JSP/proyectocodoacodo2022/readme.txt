@@ -1,0 +1,3 @@
+Buenas tardes profesora, entrego el tp aunque tiene mil errores. estuve varias semanas pero me rendi por ahora..seguire leyendo y descubriendo mis errores..
+Queria agradecerle toda la paciencia que tuvo a lo largo del curso. Personalmente Fue todo un reto seguir el curso y espero seguir capacitandome porque me gusto mucho todo este mundo desconocido. Le deseo un buen año 2023, gracias por todo!
+Vanesa
